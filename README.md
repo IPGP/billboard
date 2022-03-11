@@ -1,2 +1,2 @@
 # Billboard
-A collaborative editing exercise for the 2019 GIT class
+A collaborative editing exercise for the 2022 GIT class
