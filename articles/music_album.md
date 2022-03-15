@@ -1,4 +1,8 @@
-#This is a task for the git training course happening at IPGP on 14/03/2021. 
+#Gwen Guthrie Portrait Review
+
+[!Cover](https://www.bbc.co.uk/staticarchive/f14e87ea1f5f3ca10fa7bb4898e72b2e9abbd7ca.jpg)
+
+This is a task for the git training course happening at IPGP on 14/03/2021. 
 
 Although mainly remembered today for her sassy 1986 hit, Ain’t Nothin’ Goin’ on But the Rent, Gwen Guthrie was one of the most talented vocalists in early 80s RnB.
 Having cut her teeth in the 1970s as a backing vocalist and then co-writing songs such as Love Don't You Go Through No Changes On Me for Sister Sledge, Guthrie began her solo recording career on Island Records with her eponymous debut in 1982.
