@@ -1,6 +1,6 @@
 #Gwen Guthrie Portrait Review
 
-[!Cover](https://www.bbc.co.uk/staticarchive/f14e87ea1f5f3ca10fa7bb4898e72b2e9abbd7ca.jpg)
+![Cover](https://www.bbc.co.uk/staticarchive/f14e87ea1f5f3ca10fa7bb4898e72b2e9abbd7ca.jpg)
 
 This is a task for the git training course happening at IPGP on 14/03/2021. 
 
