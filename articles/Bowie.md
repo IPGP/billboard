@@ -1,0 +1,13 @@
+#David Bowie - The Man Who Sold The World album
+
+##From Wikipedia, the free encyclopedia [here](https://en.wikipedia.org/wiki/The_Man_Who_Sold_the_World_(album))
+
+
+![cover](https://upload.wikimedia.org/wikipedia/en/d/da/MWSTWUS2.jpg)
+The Man Who Sold the World is the third studio album by English musician David Bowie. It was originally released through Mercury Records in the United States on 4 November 1970 and in the United Kingdom on 10 April 1971. The album was produced by Tony Visconti and recorded at Trident and Advision Studios in London during April and May 1970. It features the first appearances of guitarist Mick Ronson and drummer Mick Woodmansey on a Bowie record, who would later become famous as members of the Spiders from Mars.
+
+Following the largely acoustic and folk rock sound of Bowie's previous 1969 self-titled album, The Man Who Sold the World marked a shift toward hard rock, with elements of blues rock. The lyrics are also darker than his previous releases, exploring themes of insanity, religion, technology and war. None of the songs from the album were released as official singles, although some tracks appeared as B-sides of singles between 1970 and 1973. Originally titled Metrobolist, a play on Fritz Lang's 1927 film Metropolis, the title was changed at the last minute by Mercury without Bowie's consultation.
+
+The album was released with different cover artwork in the US and the UK. For the US release, the artwork was a cartoon-like drawing of a cowboy in front of an asylum. It was drawn by Michael J. Weller and based on an image of actor John Wayne. Bowie was unenthusiastic about the cover, so he enlisted Keith MacMillan to shoot an alternate cover. The final image, featuring Bowie wearing a blue dress designed by fashion designer Michael Fish, was used as the cover for the UK release. The Man Who Sold the World was reissued by RCA Records in 1972, featuring a black-and-white picture of Bowie's then-current character Ziggy Stardust on the sleeve, but reissues since 1990 have revived the original UK artwork.
+
+The Man Who Sold the World was originally better received by music critics in the US than in the UK. Nevertheless, it was a commercial failure in both countries; however, the 1972 reissue managed to chart in both the US and the UK. Retrospectively, the album has been praised by critics for the band's performance and the unsettling nature of its music and lyrics, being considered by many to be the start of Bowie's "classic period". It has since been reissued multiple times and was remixed in 2020, under its original title Metrobolist, for its 50th anniversary.
