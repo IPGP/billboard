@@ -4,7 +4,7 @@
 
 London Calling is the third studio album by English rock band the Clash. It was originally released as a double album in the United Kingdom on 14 December 1979 by CBS Records, and in the United States in January 1980 by Epic Records.
 
-![Cover](https://upload.wikimedia.org/wikipedia/en/0/00/TheClashLondonCallingalbumcover.jpg)
+![Cover](https://i.redd.it/z15uaou5hp481.png)
 
 The Clash recorded the album with producer Guy Stevens at Wessex Sound Studios in London during August, September and November 1979,  following a change in management and a period of writer's block for songwriters Joe Strummer and Mick Jones. Bridging a traditional punk rock sound and a new wave aesthetic, London Calling reflects the band's growing interest in styles beyond their punk roots, including reggae, rockabilly, ska, New Orleans R&B, pop, lounge jazz, and hard rock. 
 Themes include social displacement, unemployment, racial conflict, drug use, and the responsibilities of adulthood.
@@ -16,4 +16,4 @@ On Rolling Stone's list of The 500 Greatest Albums of All Time, London Calling r
 
 > "THE BEST ALBUM OF ALL TIME IN MY HUMBLE OPINION!" (c) Boris M. Maletckii
 
-> "DID SOMYBODY MADE SOMETHING BETTER THAN THIS" (c) Chicago Made/Cookie Monster/Chick Magnet Punk's IG story from B. Maletckii's memory 
+> "DID SOMEBODY MAKE SOMETHING BETTER THAN THIS" (c) Chicago Made/Cookie Monster/Chick Magnet Punk's IG story from B. Maletckii's memory 
