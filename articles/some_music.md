@@ -1,0 +1,13 @@
+# Men Without Hats - Safety Dance
+
+## From the album : Rythm of Youth
+
+![Cover](https://m.media-amazon.com/images/M/MV5BZGY0N2Y4MTItMzgwMC00NjRkLWJhNmQtODVhYWNmYTkxODcxXkEyXkFqcGdeQXVyNDE4OTY5NzI@._V1_.jpg)
+
+"The Safety Dance" is a song by Canadian new wave/synth-pop band Men Without Hats, released in Canada in 1982 as the second single from Rhythm of Youth. The song was written by lead singer Ivan Doroschuk after he had been kicked out of a club for pogo dancing.
+
+The song entered the Canadian top 50 in February 1983, peaking at number 11 on May 14. In the meantime, "The Safety Dance" was released in the US on March 16, but did not enter the US charts for a few months. When it finally did, the record became a bigger hit than it had been in Canada, spending four weeks at its peak position of number 3 in September and October 1983, and staying on the Billboard Hot 100 for 24 weeks. It also reached number 1 on Cash Box, as well as number 1 on the Billboard Dance Chart. "The Safety Dance" found similar success in other parts of the world, entering the UK charts in August and peaking at number 6 in early November, and entering the New Zealand charts in November, eventually peaking at number 2 in early 1984. The song was also a massive success in South Africa, reaching No. 1 on the Springbok charts. The song has been inducted into the Canadian Songwriters Hall of Fame.
+
+The writer/lead singer, Ivan Doroschuk, has explained that "The Safety Dance" is a protest against bouncers prohibiting dancers from pogoing to 1980s new wave music in clubs when disco was declining and new wave was coming in. Unlike disco dancing, which is done with partners, new wave dancing is done individually and involves holding the torso rigid while thrashing about; pogoing involves jumping up and down (the more deliberately violent evolution of pogoing is slamdancing). Clubgoers doing the newer pogo dance were perceived as posing a danger to disco dancers on the dance floor, and so club bouncers would tell pogoers to stop or be kicked out of the club. Thus, the song is a protest and a call for freedom of expression.
+
+In 2003, on an episode of VH1's True Spin, Doroschuk responded to two common interpretations of the song. Firstly, he explained "The Safety Dance" is not a call for safe sex, and that this interpretation is "people reading into it a bit too much". Secondly, he explained that it is not an anti-nuclear protest song per se despite the nuclear imagery at the end of the video. Doroschuk stated that "it wasn't a question of just being anti-nuclear, it was a question of being anti-establishment." 
